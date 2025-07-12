@@ -1,1 +1,1 @@
-# Bioqu-mica-malla-curricular-interactiva
+# Bioquímica-malla-curricular-interactiva
